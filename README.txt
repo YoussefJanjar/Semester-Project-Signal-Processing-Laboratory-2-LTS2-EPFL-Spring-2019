@@ -1,3 +1,0 @@
-# Semester Project 
-
-Youssef Janjar
